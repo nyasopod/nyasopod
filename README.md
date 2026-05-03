@@ -4,7 +4,9 @@
 
 <p align="center">
 (｡˃ ᵕ ˂ )⸝♡ 
-<br>
+ <br>
+ i am, i am, i am, i am ready!
+ <br>
 <p align="center">
 frequently with friends, but shoot a whisper for a response!
   <br>
